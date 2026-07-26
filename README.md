@@ -1,6 +1,8 @@
 ## HELLO
 I am Salmon that is me. 
 
+Pfp is a handsome self portrait done by me
+
 18 year
 
 I like all sorts of music but I really like hardcore punk and ska punk
