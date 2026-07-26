@@ -1,13 +1,15 @@
 ## HELLO
-I am Salmon that is me. 
+They call me Salmon
 
-Pfp is a handsome self portrait done by me
+Pfp is an attractive self portrait done by me
 
 18 year
 
 I like all sorts of music but I really like hardcore punk and ska punk
 
 If you reference media theres a 70% chance I'll have no clue what you're talking about I am so sorry
+
+I like to wear formal or layered clothes outside in 100 degree weather and then complain about how hot it is
 
 I REALLY like circling the map and frequenting the library
 
