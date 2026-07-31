@@ -28,6 +28,8 @@ Soon to be studying artifacts and anthropology
 4. Be patient with me and I will cast wonderful spells on you
  
 5. Be mean and you will transform into a guava under my magic
+
+## I DREW THIS
    
 
-   
+   <img width="736" height="691" alt="myponyandalsome" src="https://github.com/user-attachments/assets/7485d348-0f26-4629-81e2-cffa97697698" />
