@@ -1,25 +1,19 @@
 ## HELLO
 They call me Salmon
 
-Pfp is an attractive self portrait done by me
-
 18 year
 
-I like all sorts of music but I really like hardcore punk and ska punk
+I like all sorts of music but I really like ska punk and 2010s pop. because it is fun 
 
 If you reference media theres a 70% chance I'll have no clue what you're talking about I am so sorry
-
-I like to wear formal or layered clothes outside in 100 degree weather and then complain about how hot it is
 
 I REALLY like circling the map and frequenting the library
 
 If you talk to me do not be alarmed by my interesting social skills, I am not the sharpest banana in the bunch but I promise I am pure of heart
 
-Soon to be studying artifacts and anthropology
-
 ## BOUNDARIES AND OTHER STUFF
 
-1. Be nice to me please
+1. Be nice to me please. kindness is key haha
  
 2. Don't be creepy
  
@@ -28,8 +22,3 @@ Soon to be studying artifacts and anthropology
 4. Be patient with me and I will cast wonderful spells on you
  
 5. Be mean and you will transform into a guava under my magic
-
-## I DREW THIS
-   
-
-   <img width="736" height="691" alt="myponyandalsome" src="https://github.com/user-attachments/assets/7485d348-0f26-4629-81e2-cffa97697698" />
