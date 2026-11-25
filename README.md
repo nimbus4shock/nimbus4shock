@@ -11,6 +11,8 @@ I REALLY like circling the map and frequenting the library
 
 If you talk to me do not be alarmed by my interesting social skills, I am not the sharpest banana in the bunch but I promise I am pure of heart
 
+my pfp is to show that I like to play and have fun ❤
+
 ## BOUNDARIES AND OTHER STUFF
 
 1. Be nice to me please. kindness is key haha
